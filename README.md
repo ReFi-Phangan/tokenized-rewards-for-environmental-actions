@@ -15,13 +15,11 @@ Remember to follow EverGreenCoin's [official guidelines](https://evergreencoin.o
 
 **We Try Better by Jerri.nft**
 
-*Amplified into ever greater positive impact.*
-
 1. **Do good and provide photo of it**
-   Upload your good deed image with a brief description via our easy upload buttons at [WeTryBetter](https://www.wetrybetter.com). That's it! Now, do it again and get your friends involved to help reach the goal of 1 million good deeds.
+   Upload your good deed image with a brief description via our easy upload buttons at [WeTryBetter](https://www.wetrybetter.com). Now, do it again and get your friends involved to help reach the goal of 1 million good deeds.
 
-2. **The aim is to collect 1 million of images**
+3. **The aim is to collect 1 million of images**
    We place each uploaded image into a 1,000 x 1,000 image canvas until it is filled with 1 million images of good deeds. Your image is a vital part of this enormous collective achievement. Be proud of your contribution to our shared success!
 
-3. **There will be auction to amplify the impact**
+4. **There will be auction to amplify the impact**
    Once we reach 1 million good deeds (images), we auction it off as digital art. The net proceeds from the auction will be distributed to our list of designated charities. Our dream is that 1 million good deeds create $10 million for worthy causes for our planet.
